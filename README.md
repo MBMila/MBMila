@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on reduce of environmental poluition.
 - 📫 How to reach me mbmilanezi@gmail.com.
 - 😄 Pronouns: Bia...
-- ⚡ Fun fact: none
+- ⚡ Fun fact: Cuidar do ambiente em que se vive é o primeiro passo para cuidar do nosso planeta.
 
 <!---
 MBMila/MBMila is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
